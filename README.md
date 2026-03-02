@@ -1,2 +1,2 @@
 <div align="center">
-strawpage sokn
+i look at other peoples carrd / rentry / straw and ik i wont finish mines soon
